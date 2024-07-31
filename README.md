@@ -1,6 +1,6 @@
 # sarah2A
 
-# Boas vindas ao meu perfil!!#
+# Boas vindas ao meu perfil!!
 
 Meu nome é Sarah dos Reis =)
 
@@ -10,4 +10,4 @@ Uso este espaço para minha organização e compartilhamento dos meus projetos d
  # Entre em contato comigo <3
 
 00001109466328sp@al.educacao.sp.gov.br
-@sahzz.cy 
+@sahzz.cy sou casada.
