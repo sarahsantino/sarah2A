@@ -1,4 +1,4 @@
-# sarah2A
+# Sarah2A
 
 # Boas vindas ao meu perfil!!
 
