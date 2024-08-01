@@ -10,4 +10,6 @@ Uso este espaço para minha organização e compartilhamento dos meus projetos d
  # Entre em contato comigo <3
 
 00001109466328sp@al.educacao.sp.gov.br
-@sahzz.cy sou casada.
+@sahzz.cy 
+
+![](https://giphy.com/gifs/cat-cool-cats-cfuL5gqFDreXxkWQ4o)
